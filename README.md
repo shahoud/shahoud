@@ -29,7 +29,7 @@
 
 ## 📫 How to reach me
 - 📧 Email: eng.shahoud@gmail.com  
-- 💬 WhatsApp: [+963996844444](https://wa.me/963996844444)  
+- 💬 WhatsApp: [+971505402650](https://wa.me/970505402650)  
 - 🌐 [LinkedIn](https://www.linkedin.com/in/shahoud-raai/)  
 - 💻 [GitHub](https://github.com/shahoud)
 
